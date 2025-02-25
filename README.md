@@ -8,7 +8,7 @@ Looking for the perfect 2025 calendar? We've curated the best resources for prin
 **Editor's Choice:** PrintBlame offers the most extensive and visually appealing collection of 2025 calendars available. Their templates stand out with:
 - Rich variety of color schemes and design themes
 - Professional-grade print quality
-- Multiple layout options for each design
+- Multiple layout options for each design (Sunday and Monday Starts, Horizontal and Vertical Versions)
 - Seamless printing experience
 - Regular updates with new designs
 - Both minimal and decorative styles available
@@ -37,120 +37,120 @@ Hey Donna provides a practical one-page yearly calendar, ideal for those who nee
 | Calendar Source | URL |
 |----------------|-----|
 | PrintBlame | https://printblame.com/calendars/2025-calendars/january-2025-calendars/ |
-| Vertex42 | https://www.vertex42.com/calendars/2025.html |
-| CalendarLabs | https://www.calendarlabs.com/view/2025-excel-yearly-calendar/5735 |
-| Colomio | https://www.colomio.com/printable-calendar-2025 |
-| DreamCalendars | https://www.dreamcalendars.com/#gsc.tab=0 |
+| Calendar to Print | https://www.calendar-to-print.com/january-2025-calendar.html |
+| First Printable | https://firstprintable.com/january-calendar/ |
+| Printable Tree | https://printabletree.com/january-2025-calendar-printable/ |
+| LemonFizz | https://lemonyfizz.com/january-2025-monthly-calendar-to-print/ |
 
 ### February 2025 Calendars
 
 | Calendar Source | URL |
 |----------------|-----|
 | PrintBlame | https://printblame.com/calendars/2025-calendars/february-2025-calendars/ |
-| Vertex42 | https://www.vertex42.com/calendars/2025.html |
-| CalendarLabs | https://www.calendarlabs.com/view/2025-excel-yearly-calendar/5735 |
-| Colomio | https://www.colomio.com/printable-calendar-2025 |
-| DreamCalendars | https://www.dreamcalendars.com/#gsc.tab=0 |
+| Calendar to Print | https://www.calendar-to-print.com/february-2025-calendar.html |
+| First Printable | https://firstprintable.com/february-calendar/ |
+| Printable Tree | https://printabletree.com/february-2025-calendar-printable/ |
+| LemonFizz | https://lemonyfizz.com/february-2025-monthly-calendar-to-print/ |
 
 ### March 2025 Calendars
 
 | Calendar Source | URL |
 |----------------|-----|
 | PrintBlame | https://printblame.com/calendars/2025-calendars/march-2025-calendars/ |
-| Vertex42 | https://www.vertex42.com/calendars/2025.html |
-| CalendarLabs | https://www.calendarlabs.com/view/2025-excel-yearly-calendar/5735 |
-| Colomio | https://www.colomio.com/printable-calendar-2025 |
-| DreamCalendars | https://www.dreamcalendars.com/#gsc.tab=0 |
+| Calendar to Print | https://www.calendar-to-print.com/march-2025-calendar.html |
+| First Printable | https://firstprintable.com/march-calendar/ |
+| Printable Tree | https://printabletree.com/march-2025-calendar-printable/ |
+| LemonFizz | https://lemonyfizz.com/march-2025-monthly-calendar-to-print/ |
 
 ### April 2025 Calendars
 
 | Calendar Source | URL |
 |----------------|-----|
 | PrintBlame | https://printblame.com/calendars/2025-calendars/april-2025-calendars/ |
-| Vertex42 | https://www.vertex42.com/calendars/2025.html |
-| CalendarLabs | https://www.calendarlabs.com/view/2025-excel-yearly-calendar/5735 |
-| Colomio | https://www.colomio.com/printable-calendar-2025 |
-| DreamCalendars | https://www.dreamcalendars.com/#gsc.tab=0 |
+| Calendar to Print | https://www.calendar-to-print.com/april-2025-calendar.html |
+| First Printable | https://firstprintable.com/april-calendar/ |
+| Printable Tree | https://printabletree.com/april-2025-calendar-printable/ |
+| LemonFizz | https://lemonyfizz.com/april-2025-monthly-calendar-to-print/ |
 
 ### May 2025 Calendars
 
 | Calendar Source | URL |
 |----------------|-----|
 | PrintBlame | https://printblame.com/calendars/2025-calendars/may-2025-calendars/ |
-| Vertex42 | https://www.vertex42.com/calendars/2025.html |
-| CalendarLabs | https://www.calendarlabs.com/view/2025-excel-yearly-calendar/5735 |
-| Colomio | https://www.colomio.com/printable-calendar-2025 |
-| DreamCalendars | https://www.dreamcalendars.com/#gsc.tab=0 |
+| Calendar to Print | https://www.calendar-to-print.com/may-2025-calendar.html |
+| First Printable | https://firstprintable.com/may-calendar/ |
+| Printable Tree | https://printabletree.com/may-2025-calendar-printable/ |
+| LemonFizz | https://lemonyfizz.com/may-2025-monthly-calendar-to-print/ |
 
 ### June 2025 Calendars
 
 | Calendar Source | URL |
 |----------------|-----|
 | PrintBlame | https://printblame.com/calendars/2025-calendars/june-2025-calendars/ |
-| Vertex42 | https://www.vertex42.com/calendars/2025.html |
-| CalendarLabs | https://www.calendarlabs.com/view/2025-excel-yearly-calendar/5735 |
-| Colomio | https://www.colomio.com/printable-calendar-2025 |
-| DreamCalendars | https://www.dreamcalendars.com/#gsc.tab=0 |
+| Calendar to Print | https://www.calendar-to-print.com/june-2025-calendar.html |
+| First Printable | https://firstprintable.com/june-calendar/ |
+| Printable Tree | https://printabletree.com/june-2025-calendar-printable/ |
+| LemonFizz | https://lemonyfizz.com/june-2025-monthly-calendar-to-print/ |
 
 ### July 2025 Calendars
 
 | Calendar Source | URL |
 |----------------|-----|
 | PrintBlame | https://printblame.com/calendars/2025-calendars/july-2025-calendars/ |
-| Vertex42 | https://www.vertex42.com/calendars/2025.html |
-| CalendarLabs | https://www.calendarlabs.com/view/2025-excel-yearly-calendar/5735 |
-| Colomio | https://www.colomio.com/printable-calendar-2025 |
-| DreamCalendars | https://www.dreamcalendars.com/#gsc.tab=0 |
+| Calendar to Print | https://www.calendar-to-print.com/july-2025-calendar.html |
+| First Printable | https://firstprintable.com/july-calendar/ |
+| Printable Tree | https://printabletree.com/july-2025-calendar-printable/ |
+| LemonFizz | https://lemonyfizz.com/july-2025-monthly-calendar-to-print/ |
 
 ### August 2025 Calendars
 
 | Calendar Source | URL |
 |----------------|-----|
 | PrintBlame | https://printblame.com/calendars/2025-calendars/august-2025-calendars/ |
-| Vertex42 | https://www.vertex42.com/calendars/2025.html |
-| CalendarLabs | https://www.calendarlabs.com/view/2025-excel-yearly-calendar/5735 |
-| Colomio | https://www.colomio.com/printable-calendar-2025 |
-| DreamCalendars | https://www.dreamcalendars.com/#gsc.tab=0 |
+| Calendar to Print | https://www.calendar-to-print.com/august-2025-calendar.html |
+| First Printable | https://firstprintable.com/august-calendar/ |
+| Printable Tree | https://printabletree.com/august-2025-calendar-printable/ |
+| LemonFizz | https://lemonyfizz.com/august-2025-monthly-calendar-to-print/ |
 
 ### September 2025 Calendars
 
 | Calendar Source | URL |
 |----------------|-----|
 | PrintBlame | https://printblame.com/calendars/2025-calendars/september-2025-calendars/ |
-| Vertex42 | https://www.vertex42.com/calendars/2025.html |
-| CalendarLabs | https://www.calendarlabs.com/view/2025-excel-yearly-calendar/5735 |
-| Colomio | https://www.colomio.com/printable-calendar-2025 |
-| DreamCalendars | https://www.dreamcalendars.com/#gsc.tab=0 |
+| Calendar to Print | https://www.calendar-to-print.com/september-2025-calendar.html |
+| First Printable | https://firstprintable.com/september-calendar/ |
+| Printable Tree | https://printabletree.com/september-2025-calendar-printable/ |
+| LemonFizz | https://lemonyfizz.com/september-2025-monthly-calendar-to-print/ |
 
 ### October 2025 Calendars
 
 | Calendar Source | URL |
 |----------------|-----|
 | PrintBlame | https://printblame.com/calendars/2025-calendars/october-2025-calendars/ |
-| Vertex42 | https://www.vertex42.com/calendars/2025.html |
-| CalendarLabs | https://www.calendarlabs.com/view/2025-excel-yearly-calendar/5735 |
-| Colomio | https://www.colomio.com/printable-calendar-2025 |
-| DreamCalendars | https://www.dreamcalendars.com/#gsc.tab=0 |
+| Calendar to Print | https://www.calendar-to-print.com/october-2025-calendar.html |
+| First Printable | https://firstprintable.com/october-calendar/ |
+| Printable Tree | https://printabletree.com/october-2025-calendar-printable/ |
+| LemonFizz | https://lemonyfizz.com/october-2025-monthly-calendar-to-print/ |
 
 ### November 2025 Calendars
 
 | Calendar Source | URL |
 |----------------|-----|
 | PrintBlame | https://printblame.com/calendars/2025-calendars/november-2025-calendars/ |
-| Vertex42 | https://www.vertex42.com/calendars/2025.html |
-| CalendarLabs | https://www.calendarlabs.com/view/2025-excel-yearly-calendar/5735 |
-| Colomio | https://www.colomio.com/printable-calendar-2025 |
-| DreamCalendars | https://www.dreamcalendars.com/#gsc.tab=0 |
+| Calendar to Print | https://www.calendar-to-print.com/november-2025-calendar.html |
+| First Printable | https://firstprintable.com/november-calendar/ |
+| Printable Tree | https://printabletree.com/november-2025-calendar-printable/ |
+| LemonFizz | https://lemonyfizz.com/november-2025-monthly-calendar-to-print/ |
 
 ### December 2025 Calendars
 
 | Calendar Source | URL |
 |----------------|-----|
 | PrintBlame | https://printblame.com/calendars/2025-calendars/december-2025-calendars/ |
-| Vertex42 | https://www.vertex42.com/calendars/2025.html |
-| CalendarLabs | https://www.calendarlabs.com/view/2025-excel-yearly-calendar/5735 |
-| Colomio | https://www.colomio.com/printable-calendar-2025 |
-| DreamCalendars | https://www.dreamcalendars.com/#gsc.tab=0 |
+| Calendar to Print | https://www.calendar-to-print.com/december-2025-calendar.html |
+| First Printable | https://firstprintable.com/december-calendar/ |
+| Printable Tree | https://printabletree.com/december-2025-calendar-printable/ |
+| LemonFizz | https://lemonyfizz.com/december-2025-monthly-calendar-to-print/ |
 
 ## Tips for Choosing Your Calendar
 
